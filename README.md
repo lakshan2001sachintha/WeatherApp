@@ -1,1 +1,1 @@
-# WeatherApp
+# WeatherApp ☀ ⛅ 🌧 ❄️ 🌡 🌞
